@@ -9,6 +9,11 @@ In essence, the visit to UTM Digital left an indelible impression on me, emphasi
 
 To enhance the impact of future visits to UTM Digital, consider incorporating guided tours or interactive sessions that allow visitors to delve even deeper into the specific technological advancements and initiatives driving the institution forward. Additionally, organizing workshops or presentations on emerging trends in digital education could provide visitors with a more comprehensive understanding of how UTM Digital is at the forefront of educational innovation.
 
+
+# OTHERS⋆.˚ ᡣ𐭩 .𖥔˚
+
+The visit got me thinking of other ways to use UTM Digital's tech knowledge in teaching, like having industry experts give talks or workshops, or teaming up with student groups to help everyone get better with tech. By keeping up with the latest tech and working with businesses, UTM Digital makes sure UTM is always at the front in the tech world. Their commitment to making a lively and collaborative work setting will for sure help UTM's students and staff do well.
+
 # PHOTOS⋆.˚ ᡣ𐭩 .𖥔˚
 
 ![Photo 1](https://github.com/Hynanie/ASSIGNMENT-3-VIDEO-ON-VISIT-TO-UTMDIGITAL-AND-THE-VIRTUAL-TALK/assets/148435826/bcd72f03-6e88-47a3-964f-b4d6b7a17e05)
