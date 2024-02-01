@@ -5,7 +5,7 @@ The hands-on encounter with their advanced technological infrastructure showcase
 Furthermore, our visit highlighted the collaborative efforts and forward-thinking initiatives undertaken by UTM Digital to foster a culture of innovation and digital literacy among students and faculty alike. By actively engaging with the latest advancements, UTM Digital contributes significantly to the institution's overall resilience and adaptability in the face of evolving educational demands.
 In essence, the visit to UTM Digital left an indelible impression on me, emphasizing the institution's proactive stance in embracing technological advancements to chart a successful course into the future.
 
-# SUGGESTTION FOR IMPROVEMENT⋆.˚ ᡣ𐭩 .𖥔˚
+# SUGGESTION FOR IMPROVEMENT⋆.˚ ᡣ𐭩 .𖥔˚
 
 To enhance the impact of future visits to UTM Digital, consider incorporating guided tours or interactive sessions that allow visitors to delve even deeper into the specific technological advancements and initiatives driving the institution forward. Additionally, organizing workshops or presentations on emerging trends in digital education could provide visitors with a more comprehensive understanding of how UTM Digital is at the forefront of educational innovation.
 
